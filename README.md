@@ -1,1 +1,0 @@
-# Jk-technology-s-private-limited-
